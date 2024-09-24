@@ -10,3 +10,5 @@ I think ms.whitby explained her instructions very well and thats why im in my jo
 For me nope i did not encounter any challenges :)
 # September 18, 2024
 This is a free week.
+# September 24, 2024
+the sphero is different because we didnt have to do to much while coding we just put numbers and stuff but for the python we actually have to code and type words and stuff and were also not working with the balls sphero anymore.
