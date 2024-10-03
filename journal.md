@@ -11,4 +11,10 @@ For me nope i did not encounter any challenges :)
 # September 18, 2024
 This is a free week.
 # September 24, 2024
-the sphero is different because we didnt have to do to much while coding we just put numbers and stuff but for the python we actually have to code and type words and stuff and were also not working with the balls sphero anymore.
+the sphero is different because we didnt have to do to much while coding we just put 
+numbers and stuff but for the python we actually have to code and type words and stuff and 
+were also not working with the balls sphero anymore.
+# October 3, 2024
+Computer science impacts my life because the little programs made with it i use for my work 
+and stuff and it also works mobiley even though the apps were made off of computer science
+and i use my phone to text and communicate.
