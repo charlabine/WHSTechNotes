@@ -18,3 +18,17 @@ were also not working with the balls sphero anymore.
 Computer science impacts my life because the little programs made with it i use for my work 
 and stuff and it also works mobiley even though the apps were made off of computer science
 and i use my phone to text and communicate.
+# October 10, 2024
+
+
+
+
+# October 15, 2024
+1.coding teaches you to think quck and memorize little but important details
+2. coding skills can lead to positions such as software engineer and others.
+3.it can make people make their own movement and stuff
+# October 21, 2024
+Ai can automate repetetive task such as data entry, appointment scheduling,and billing.
+its helps people see realisticly how thungs would be if it were to actually happen
+it can be harmful because it can make up nad things or fake things that make people belive in 
+stuff that isnt real almost like rumors or lies.
