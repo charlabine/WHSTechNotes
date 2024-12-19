@@ -54,4 +54,7 @@ be scrolling on tik tok and it will take me a while to realize the video is ai g
 Brain rot just means you start to normally say stuff that is online or funny to you and i personally think its funny but it gets 
 tuah point because some people use it on a daily bases and it can be harmfull to peoples intellegence thats why its called brain 
 rot because its rotting peoples brains. lore connects to my experience with technology in 2024 because it is often used for 
-the meaning of past memories or back stories and i do often see it.
+the meaning of past memories or back stories and i do often see it
+# December 16, 2024
+im soooooo excited for christmad break because i get to hangout with my friends, play soccer 
+and sleep in more.
