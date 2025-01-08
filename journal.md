@@ -58,3 +58,5 @@ the meaning of past memories or back stories and i do often see it
 # December 16, 2024
 im soooooo excited for christmad break because i get to hangout with my friends, play soccer 
 and sleep in more.
+# January 8, 2025
+i enjoyed how chill the class was but i needed to do my work more cause i was slacking so i look forward to fixing that. i dont know what im interested in \.
