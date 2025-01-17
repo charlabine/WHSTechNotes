@@ -59,4 +59,8 @@ the meaning of past memories or back stories and i do often see it
 im soooooo excited for christmad break because i get to hangout with my friends, play soccer 
 and sleep in more.
 # January 8, 2025
-i enjoyed how chill the class was but i needed to do my work more cause i was slacking so i look forward to fixing that. i dont know what im interested in \.
+i enjoyed how chill the class was but i needed to do my work more cause i was slacking so i look forward to 
+fixing that. i dont know what im interested in .
+# January 13, 2025
+I think ai limis them because ai will turn to do all the work and then there will be no work left for humans so ho are
+they supposed to make money. I personally wouldnt put myself in a job like this thats hy im thinking about moving to the medical feild.
