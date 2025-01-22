@@ -64,3 +64,8 @@ fixing that. i dont know what im interested in .
 # January 13, 2025
 I think ai limis them because ai will turn to do all the work and then there will be no work left for humans so ho are
 they supposed to make money. I personally wouldnt put myself in a job like this thats hy im thinking about moving to the medical feild.
+# January 22, 2025
+I think it makes companies worry because if they dont have enough users the company will go down and they will get less money.
+I think they could just be more secure and proven that they are maybe make 2 different apps for the seperate countrys.
+I would let people see videos that are only in their country and just make two different apps and not allow one another 
+to get the other app i can learn security.
