@@ -70,7 +70,8 @@ I think they could just be more secure and proven that they are maybe make 2 dif
 I would let people see videos that are only in their country and just make two different apps and not allow one another 
 to get the other app i can learn security.
 # January 27, 2025
-Name	  |Car	           |Mistake
+Name	  |Car	           |Mistake                  |
+--------|----------------|------------------------ |
 Jimmy	  |	Honda civic    | Drilled mole in gas tank|
 Kayla  	|	GMC sierra     | Fixed wrong problem     |
 Bart	  |	Toyota Corolla | Left stains on carpet   |
