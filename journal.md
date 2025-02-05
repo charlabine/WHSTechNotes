@@ -76,3 +76,5 @@ Jimmy	  |	Honda civic    | Drilled mole in gas tank|
 Kayla  	|	GMC sierra     | Fixed wrong problem     |
 Bart	  |	Toyota Corolla | Left stains on carpet   |
 Harrison|	Subaru Forester| Left the oil cap off    |
+# February 3, 2025
+They could help or change it by making reactions to errors more effective and just help it in more ways when an error seems to occur maybe put more focus onto it for less risk of peoples literal life.
