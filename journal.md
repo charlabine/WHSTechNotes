@@ -1,4 +1,4 @@
-# September 6, 2024
+ # September 6, 2024
 3 sensors found on the sphero is the lights, the speed, and the driving stuff.
 The lights work a lot of different ways theres a front light, a back light, and a main light.
 The main like it the one with all the little dots and can make pictures. 
@@ -78,3 +78,8 @@ Bart	  |	Toyota Corolla | Left stains on carpet   |
 Harrison|	Subaru Forester| Left the oil cap off    |
 # February 3, 2025
 They could help or change it by making reactions to errors more effective and just help it in more ways when an error seems to occur maybe put more focus onto it for less risk of peoples literal life.
+# February 11, 2025
+what i would include for the football coaches is ai to predict what plays there are and whats the best play to make based off of the people that are playing and who is on the team
+it would also include search so they could look up senarios for the situation they are in to help the game.
+# February 18, 2025
+Last week or all last week i learned that even though my soccer team has bad moments in the game, we still get better and were more connected than any other team could be.
