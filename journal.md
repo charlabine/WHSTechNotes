@@ -83,3 +83,7 @@ what i would include for the football coaches is ai to predict what plays there 
 it would also include search so they could look up senarios for the situation they are in to help the game.
 # February 18, 2025
 Last week or all last week i learned that even though my soccer team has bad moments in the game, we still get better and were more connected than any other team could be.
+# Febuary 24, 2025
+A way for people to stay updated on new youth slang is simply just to stay updated or keep up because people come up
+ with the most random words or brainrot words out of litteraly the most random stuff.Sometimes the older people evn catch on and use 
+ the words on their own. They seem to be "cooler" if they do because its funny to the youth.
