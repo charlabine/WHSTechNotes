@@ -87,3 +87,7 @@ Last week or all last week i learned that even though my soccer team has bad mom
 A way for people to stay updated on new youth slang is simply just to stay updated or keep up because people come up
  with the most random words or brainrot words out of litteraly the most random stuff.Sometimes the older people evn catch on and use 
  the words on their own. They seem to be "cooler" if they do because its funny to the youth.
+# March 3, 2025
+# March 21, 2025
+For technology i used over spring break i obviously used mobile tech because i use my phone for everything
+i used apps mostly to watch tik tok and my shows. I also used it to communitcate with my friends and family.so ya.
