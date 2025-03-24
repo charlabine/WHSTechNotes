@@ -91,3 +91,8 @@ A way for people to stay updated on new youth slang is simply just to stay updat
 # March 21, 2025
 For technology i used over spring break i obviously used mobile tech because i use my phone for everything
 i used apps mostly to watch tik tok and my shows. I also used it to communitcate with my friends and family.so ya.
+# March 24, 2025
+I think technology in basketball is pretty cool. I seen there were games during covid where we couldnt see eachother and they would 
+have the game playing with the people watching it over the phone or laptop and you could see the faces of the audience watching the 
+game.Another thing that basket ball used technology for was when a basketnall player needed a mast but none would help to he had his
+face scanned and the mask fit him perfectly to thats pretty cool.
