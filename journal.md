@@ -96,3 +96,7 @@ I think technology in basketball is pretty cool. I seen there were games during 
 have the game playing with the people watching it over the phone or laptop and you could see the faces of the audience watching the 
 game.Another thing that basket ball used technology for was when a basketnall player needed a mast but none would help to he had his
 face scanned and the mask fit him perfectly to thats pretty cool.
+# April 2, 2025
+The most stressful part of school lately has been me trying to have the energy to stay up and listen and do my work because im so
+tired from soccer and volleyball and then i have so many assignments to do i always get confused on which ones i did and did not 
+finish  and alot appear missing.
