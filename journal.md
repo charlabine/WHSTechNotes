@@ -100,3 +100,11 @@ face scanned and the mask fit him perfectly to thats pretty cool.
 The most stressful part of school lately has been me trying to have the energy to stay up and listen and do my work because im so
 tired from soccer and volleyball and then i have so many assignments to do i always get confused on which ones i did and did not 
 finish  and alot appear missing.
+# April 7, 2025
+Ai is a quick and easy way to get notes and a direct lesson of and on what youre currently learning or studying.
+You could look up anything or ask ai anything that you want and it will give you a quick answer. Ai dosent just give you an answer 
+though, it gives you steps and what it used to get that answer because thats what ai was used for, not just for people to cheat off 
+ai.Theres a difference.
+While youre not in school or when youre anywhere working alone you can just ask ai the question and memorize easier than when youre
+trying to focus on many things at one while youre in class. So ai does help alot with helping people study quicker and more 
+effectively.
