@@ -108,3 +108,9 @@ ai.Theres a difference.
 While youre not in school or when youre anywhere working alone you can just ask ai the question and memorize easier than when youre
 trying to focus on many things at one while youre in class. So ai does help alot with helping people study quicker and more 
 effectively.
+# April 14, 2025
+I personally think the banning of the cellphones is very considerate and has alot of benefits for helping students focus and 
+preventing rude and negative stuff that happens between the students. I think that it would increase the passing level of people and
+help people socialize more.
+Unfortunately it would leave a lot of people upset and unable to contact people when in need or use their phone and technology for 
+things they are doing and need to.
