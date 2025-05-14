@@ -114,3 +114,14 @@ preventing rude and negative stuff that happens between the students. I think th
 help people socialize more.
 Unfortunately it would leave a lot of people upset and unable to contact people when in need or use their phone and technology for 
 things they are doing and need to.
+# May 5, 2025
+I dont think the 100 men vs a gorilla is irresponsible or anything like that, i think its just a theoretical joke but people really
+would like to know who would win.I personally think 100 men would win because even though gorillas are super strong men also arent
+that weak and if they all just surround the gorilla taking out all of its defense mechanisms or whatever it is using to fight off
+those men it wont be long until they could take the gorilla out like just snap its neck or something.
+# May 13, 2025
+I think the chromebook challenge is just overall dumb and childish, like people literally do anything but learn at school 
+the chromebook challenge is alssuper dangerous and could harm people pretty badly and worse case senario it could burn a whole school
+down. The chromebooks also arent even the students to be destroying like that its the schools which they pay for and usually need in 
+order to use and provide new upcoming students a chromebook to do their work and use for school. People just shouldnt be doing the
+challenge at all and thats that.
