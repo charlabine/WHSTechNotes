@@ -125,3 +125,7 @@ the chromebook challenge is alssuper dangerous and could harm people pretty badl
 down. The chromebooks also arent even the students to be destroying like that its the schools which they pay for and usually need in 
 order to use and provide new upcoming students a chromebook to do their work and use for school. People just shouldnt be doing the
 challenge at all and thats that.
+# May 20, 2025
+im so ready for summer and for school to end like im literally counting days because im so done with school and im so much more
+happier in the summer you dont even know. I just want to make sure i atleast pass every class and just get this first year of 
+highschool done so i can lock in with soccer again and just finally be happy again.
